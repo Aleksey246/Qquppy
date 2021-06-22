@@ -1,1 +1,1 @@
-# Qquppy/sait/Главная.html
+# https://aleksey246.github.io/Qquppy/sait/Главная.html
